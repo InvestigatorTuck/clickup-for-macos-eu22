@@ -1,4 +1,4 @@
-
+ClickUp for macOS custom Script - export to PDF and calendar integration is the best ClickUp for macOS script, featuring export to PDF and calendar integration. Safe, efficient,
 
 
 
